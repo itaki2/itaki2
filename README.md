@@ -1,2 +1,0 @@
-# itaki2
-marketimturkiye
